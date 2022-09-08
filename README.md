@@ -29,3 +29,5 @@ After all, our core business at the moment is selling graphics cards.
 However, whether it can reach 1400 or not, this wave should be unlikely to break through the previous low.
 
 let us wait and see.
+
+[Eth is unlikely to make new lows this time](https://www.usedgraphicscard.com/blog/post/jerome-powell-eth-us-stocks/)
